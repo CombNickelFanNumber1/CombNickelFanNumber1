@@ -1,4 +1,5 @@
-## Hi there 👋
+## This is... the #1 Fan of I.I Nickel from Inanimate Insanity! <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/3322f05c-51cc-4d2f-9b9d-0e2e40db97c2" />
+
 
 <!--
 **CombNickelFanNumber1/CombNickelFanNumber1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
