@@ -1,4 +1,4 @@
-## This is... the #1 Fan of I.I Nickel from Inanimate Insanity! <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/3322f05c-51cc-4d2f-9b9d-0e2e40db97c2" /> <img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/b43ca16b-569b-4d4d-8e7d-2ce8acedbcdc" /> <img width="736" height="643" alt="image" src="https://github.com/user-attachments/assets/855742fb-326f-40d3-9835-d56dd42d7ed6" />
+## This is... the #1 Fan of I.I Nickel from Inanimate Insanity! <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/3322f05c-51cc-4d2f-9b9d-0e2e40db97c2" /> 
 
 
 
