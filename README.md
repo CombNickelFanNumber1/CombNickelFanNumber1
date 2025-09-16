@@ -1,4 +1,4 @@
-## This is... the #1 Fan of I.I Nickel from Inanimate Insanity! 
+## This is... the #1 Fan of Nickel from Inanimate Insanity! 
 "Привет, Я Комби или Комб! Я очень сильно обожаю Обджект Шоу, особенно Инанимейт Инсанити, где есть мой любимчик - Никель! Я шарю за многие фд, мне очень хочется найти новых друзей, так что, если вы хотите подружится, не стесняйтесь писать мне в тг который указан в моем описании профиля!" <img width="1200" height="675" alt="image" src="https://github.com/user-attachments/assets/3322f05c-51cc-4d2f-9b9d-0e2e40db97c2" /> 
 
 
